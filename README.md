@@ -4,7 +4,8 @@ For the upcoming Thanksgiving feast I have put together the following document d
 
 ## Appetizer
 
-* Cheese and crackers perhaps
+* Cheese and crackers 
+* Proscitto and ricotta
 
 ## Entrees
 
