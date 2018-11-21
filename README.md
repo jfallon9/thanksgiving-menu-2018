@@ -1,6 +1,6 @@
 # Menu for Thanksgiving 2018
 
-For the upcoming Thanksgiving feast I have put together the following document describing the menu, and the proposed recipes we use to bring everything together for a fun and fabulous feast! I've divided it up into 3 sections; entrees, sides and desert. Recipes are listed.
+For the upcoming Thanksgiving feast I have put together the following document describing the menu, and the proposed recipes we use to bring everything together for a fun and fabulous feast! I've divided it up into 4 sections; appetizers, entrees, sides and desert. Recipes are listed.
 
 ## Appetizer
 
