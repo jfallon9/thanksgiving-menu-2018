@@ -16,6 +16,7 @@
 
 * 3x chicken stock low sodium 
 * beer
+* wine
 * seltzer
 * crackers
 * dried cranberries
