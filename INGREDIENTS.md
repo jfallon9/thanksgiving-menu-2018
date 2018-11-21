@@ -30,5 +30,5 @@
 * 2 dozen eggs
 * Cheeses for cheese plate
 * Parmesean cheese
-* heavy cream
 * sour cream
+* ice cream
