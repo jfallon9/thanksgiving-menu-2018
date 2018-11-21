@@ -6,9 +6,7 @@
 * 3 yellow onion
 * celery
 * 2 granny smith apples
-* brussel sprouts
 * 4 lbs yukon gold potatoes
-* green onion
 
 ## Meats
 
@@ -17,26 +15,18 @@
 ## Herbs
 
 * rosemary
-* parsley
 * thyme
-* bay leaves
-* chives
-* sage
 
 ## Grocery
 
-* sour dough bread loaf 1.5 lbs
 * 3x chicken stock low sodium 
-* brown sugar
-* pecans
 * beer
 * seltzer
 * crackers
 * dried cranberries
 * brown mustard
 * kosher salt
-* baking powder
-* lemon
+* lemons
 
 ## Diary
 
