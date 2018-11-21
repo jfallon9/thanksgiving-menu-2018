@@ -8,7 +8,7 @@ For the upcoming Thanksgiving feast I have put together the following document d
 
 ## Entrees
 
-* Turkey Breast from [Ina Gartner](https://barefootcontessa.com/recipes/herb-roasted-turkey-breast)
+* Turkey Breast from [Ina Gartner](https://barefootcontessa.com/recipes/herb-roasted-turkey-breast). I will do a dry brine of the turkey breast (mainly because I like it) using [this one](https://www.seriouseats.com/2014/11/quick-and-dirty-guide-to-brining-turkey-chicken-thanksgiving.html)
 * [Red Wine Braised Chicken Legs](http://www.seriouseats.com/recipes/2013/11/red-wine-braised-turkey-legs.html)
 * [Mustard-Glazed Pork Tenderloin](https://cooking.nytimes.com/recipes/10080-mustard-glazed-pork-tenderloin?utm_source=sharetools&utm_medium=email&utm_campaign=website)
 
