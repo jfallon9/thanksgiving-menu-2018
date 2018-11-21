@@ -11,7 +11,7 @@
 
 ## Day of 5PM Target Dinner Time
 
-* Turken in at 2PM
+* Turkey in at 2PM
 * Sweet potatoe and stuffing in at 3 PM
 * Mac and cheese in at 3:30 PM
 * Sprouts in at 4 PM
