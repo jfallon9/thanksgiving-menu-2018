@@ -4,13 +4,8 @@
 
 * garlic 4 heads
 * 3 yellow onion
-* celery
 * 2 granny smith apples
 * 4 lbs yukon gold potatoes
-
-## Meats
-
-* Hot italian sausage
 
 ## Herbs
 
